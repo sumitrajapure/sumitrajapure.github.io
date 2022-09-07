@@ -1,1 +1,1 @@
-# Site is under construction Contact --> if have any queries <sumitrajapure@gmail.com>
+# Contact --> if have any queries <sumitrajapure@gmail.com>
